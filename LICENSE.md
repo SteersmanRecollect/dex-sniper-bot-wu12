@@ -1,4 +1,4 @@
-# 
+# AI-powered dex sniper bot Executor | sandwich-attack-protection + rug-pull-detection offers the most advanced dex sniper bot, with sandwich-attack-protection and
 
 
 
